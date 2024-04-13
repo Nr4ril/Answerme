@@ -1,2 +1,0 @@
-# Answerme
-File vô tri
